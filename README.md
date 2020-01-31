@@ -11,17 +11,20 @@ A common sense guide for employees who wish to bring their dogs to work with the
 - Owner will keep the dog contained during times that their office door or workspace is open (e.g. baby gate, portable exercise pen, crate).
 - Owner will keep their dog on a short, fixed-length leash while moving about the building.
 - Owner may not leave their dog unsupervised.
-- Owner will immediately clean up "accidents" (e.g. pee, poop, vomit, drool) that their dog may have.
-- Owner may socialize their dog with willing coworkers.
-- However, owner and dog may not actively fraternize with non-employee office visitors.
+- Owner will immediately clean up "accidents" (e.g. urine, feces, vomit, drool) that their dog may have.
+- Owner may socialize their dog with willing coworkers. However, owner and dog may not actively fraternize with non-employee office visitors.
 - Dog must be spayed or neutered, and be at least 6 months of age.
 - Dog must be current with its vaccinations including canine distemper and rabies.
-- Dog must be calm, even-tempered and predictable. Disruptive behaviour will not be tolerated (e.g. excessive barking, destructiveness, aggression, marking).
+- Dog must be calm, even-tempered and predictable. Disruptive behaviour will not be tolerated (e.g. excessive barking, destructiveness, aggression, fearfulness, marking).
 - Dog must be clean, well-groomed, parasite-free and in good general health.
 - Owners are encouraged to coordinate visits amongst themselves to ensure that:
   - too many dogs are not present at the same time.
   - incompatible dogs are kept apart.
 - It is recommended that owner and dog complete a basic obedience course or achieve CKC Canine Good Neighbour certification.
+
+## Suggestion
+
+- To alert others when a dog is present, owners may wish to post a notice on their office door or at the entrance of their work area: Consider displaying a photo with the dog's name, breed and age.
 
 ## Exceptions
 
